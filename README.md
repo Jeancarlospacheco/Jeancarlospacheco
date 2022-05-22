@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning to code to get more helpfull
 - 💞️ I’m looking to collaborate on everything crypto related
 - 📫 How to reach me , you can reach me on discord: Jeancarlospache#4601
+- 📫 How to reach me , you can reach me on twitter: @Jeancarlosvideo
 
 <!---
 Jeancarlospacheco/Jeancarlospacheco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
